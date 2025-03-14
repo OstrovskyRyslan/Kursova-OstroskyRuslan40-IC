@@ -1,0 +1,1 @@
+# Kursova-OstroskyRuslan40-IC
